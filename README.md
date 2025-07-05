@@ -4,6 +4,6 @@
 
 sad girl profile
 
-Profile visits:
+visits:
 
 ![wawwior](https://count.getloli.com/@wawwior&theme=rule34)
